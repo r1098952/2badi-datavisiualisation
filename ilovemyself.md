@@ -1,1 +1,1 @@
-I fancy myself
+I fancy myself and I want a painting of myself.
